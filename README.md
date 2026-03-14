@@ -160,5 +160,5 @@ MIT License - Bebas digunakan untuk personal atau komersial.
 ## Support
 
 Untuk bantuan atau pertanyaan, silakan hubungi:
-- Email: support@topupgame.id
+- Email: ardinastore2511@gmail.com
 - WhatsApp: 0812-3456-7890
